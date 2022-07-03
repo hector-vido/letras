@@ -1,0 +1,25 @@
+Children of the Grave
+=====================
+
+Black Sabbath
+-------------
+
+Revolution in their minds, the children start to march
+Against the world in which they have to live
+And all the hate that's in their hearts
+They're tired of being pushed around
+And told just what to do
+They'll fight the world until they've won
+And love comes flowing through, yeah
+
+Children of tomorrow live in the tears that fall today
+Will the sun rise up tomorrow bring in peace in any way?
+Must the world live in the shadow of atomic fear?
+Can they win the fight for peace or will they disappear? Yeah
+
+So, you children of the world
+Listen to what I say
+If you want a better place to live in
+Spread the word today
+Show the world that love is still alive, you must be brave
+Or you children of today are children of the grave, yeah
